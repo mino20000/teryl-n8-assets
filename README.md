@@ -1,1 +1,0 @@
-# teryl-n8-assets
